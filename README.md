@@ -51,3 +51,7 @@ Commander Aladin’s Address:
 "Welcome to InfinityEarth. Together, we are the architects of an endless legacy. From the first step into this world, we become more than explorers—we become creators. The Symbionet is our bridge to the infinite. Let us shape the multiverse together."
 
 End of Announcement.
+
+
+
+Or access directly: https://chatgpt.com/g/g-67955e4a9c608191b5512e00f3688d60-symbionet-alpha
